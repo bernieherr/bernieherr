@@ -6,4 +6,4 @@ Let's connect. I'm always willing to exchange experiences and ideas. My interest
 
 I'm also a musician, and I dream about someday creating soundtracks for games. 😄
 
-- 📫 How to reach me: Through my twitter @berniethecrow or my e-mail berniewebdev@protonmail.com !
+- 📫 How to reach me: berniewebdev@protonmail.com !
